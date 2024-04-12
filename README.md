@@ -1,4 +1,4 @@
-## ABout me
+## About me
 
 ## My work
 
